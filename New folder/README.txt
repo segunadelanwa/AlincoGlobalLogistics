@@ -1,1 +1,0 @@
-https://xtratheme.com/elementor/logistic-2/
